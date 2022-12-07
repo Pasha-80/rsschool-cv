@@ -1,3 +1,3 @@
 # Pasha-80
-## phone
-### e-mail
+## phone: +375296834009
+### e-mail: shur1211mur@gmail.com
